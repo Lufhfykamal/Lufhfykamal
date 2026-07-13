@@ -8,7 +8,7 @@
 Saya Lufhfy Anandika Pratama dengan banyak panggilan seperti Kamal, Upik, Upeng, Cina, Ezra, Dika, Anan, GM, dan masih banyak lagi. Kalau di film atau series, saya suka karakter yang jago dalam negosiasi dan mudah melebur dengan siapa saja seperti Jordan Belfort di The Wolf of Wall Street, Joseph Goebbles di Goebbles and The Fuhrer, Jimmy McGill atau Saul Goodman di Better Call Saul dan Frank Abagnale Jr di Catch Me if You Can.
 
 ## Prinsip hidupku
-Menikmati prosesnya dari pada memikarkan hasil akhirnya!!
+Menikmati prosesnya dari pada memikirkan hasil akhirnya!! 
 
 Sudah Segitu aja, terima gaji
 
