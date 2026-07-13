@@ -1,4 +1,4 @@
-# Hi folks
+# Hello folks
 
 - Nama   :  Lufhfy Anandika Pratama
 - Kelas  :  XII RPL 1
